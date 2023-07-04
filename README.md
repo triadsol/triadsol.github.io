@@ -1,1 +1,1 @@
-# triadsol.github.io
+# naj.github.io
